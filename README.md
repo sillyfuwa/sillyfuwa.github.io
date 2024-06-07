@@ -1,2 +1,3 @@
-# sillyfuwa.github.io
-Moja pierwsza opublikowana strona
+# "In the name of Love and Justice~ Here comes Magical Girl!"
+![image number one]
+blank
